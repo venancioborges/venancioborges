@@ -1,4 +1,4 @@
-### Olá! eu sou Venancio Borges.
+### Olá! Eu sou Venancio Borges.
 Email para contato.
 
 
